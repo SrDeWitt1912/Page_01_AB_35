@@ -2,7 +2,7 @@
 
 Tras leer la documentación puedes pasar a descargar el APK para instalar la aplicación.
 
-- Descarga la aplicación. [**Aquí**](https://u.pcloud.link/publink/show?code=XZRHW3XZL25JGo8dvT5jjXYOPfmc67cd4GXX)
+- Descarga la aplicación. [**Aquí**](https://u.pcloud.link/publink/show?code=XZIpnkVZFG1d8wdBSi0tEJzcOyCMe5dq3Kmy)
 
 ## Vistazo de la aplicación 👁
 
